@@ -1,0 +1,5 @@
+![Untitled](https://github.com/Utkarsh575/varsity-for-alvatix/assets/35625228/2719694f-92db-42c2-b0d1-46912b59c0ee)
+![gtyufityufu](https://github.com/Utkarsh575/varsity-for-alvatix/assets/35625228/dd571db1-f607-41b5-8caf-ccc0db127cfb)
+![asdghjgasdghjasd](https://github.com/Utkarsh575/varsity-for-alvatix/assets/35625228/48b0c006-59f7-499d-b4ef-12027109edc6)
+![asdasdasd](https://github.com/Utkarsh575/varsity-for-alvatix/assets/35625228/33395aa6-9218-4a99-b41d-af31addbdc5b)
+![a;sdjlklasjdfkljafs](https://github.com/Utkarsh575/varsity-for-alvatix/assets/35625228/466f4f1a-c53b-4798-8158-4fd1717b9eee)
